@@ -34,3 +34,16 @@
 ![螢幕擷取畫面 2024-11-12 175049](https://github.com/user-attachments/assets/2ee86bfa-3661-4e7f-accc-2ea170f14149)
 ![螢幕擷取畫面 2024-11-12 175039](https://github.com/user-attachments/assets/1bfe68eb-d005-4beb-ac2e-c105f842277a)
 ![螢幕擷取畫面 2024-11-12 175016](https://github.com/user-attachments/assets/580754db-6184-4be6-875f-61822198b798)
+![image](https://github.com/user-attachments/assets/82a32422-b207-4401-9175-4934d4884ab6)
+![image](https://github.com/user-attachments/assets/02b3ffa3-aa29-40cf-a06b-1c68425db788)
+
+![image](https://github.com/user-attachments/assets/5ed51210-49a7-4740-b3ec-e6308f9f6a9b)
+![image](https://github.com/user-attachments/assets/022ebbfc-193d-47de-a13e-339a9fcb761c)
+![image](https://github.com/user-attachments/assets/37abd80f-7498-4836-9233-e6524fb999ec)![image](https://github.com/user-attachments/assets/b01d24fb-45b0-4ee0-95c6-5d0c3027382f)
+![image](https://github.com/user-attachments/assets/970e31f7-995f-4557-bf63-e3964f5e595d)
+
+
+![image](https://github.com/user-attachments/assets/ad2572f4-ef2c-4e69-aa80-f29c8750a6a7)
+
+
+![image](https://github.com/user-attachments/assets/9b97f056-acd2-4aca-861e-a16c999bab78)
